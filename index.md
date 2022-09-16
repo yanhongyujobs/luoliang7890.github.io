@@ -8,7 +8,7 @@
 
 > 
 
-[下载链接](https://appgallery.huawei.com/#/app/C106889655)
+[下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 
 
 
@@ -21,7 +21,7 @@
 
 > 
 
-[下载链接](https://appgallery.huawei.com/#/app/C106889655)
+[下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 
 
 ###### 摸鱼乐园
@@ -32,7 +32,7 @@
 
 > 
 
-[下载链接](https://appgallery.huawei.com/#/app/C106889655)
+[下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 
 ----
 
