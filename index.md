@@ -44,6 +44,17 @@
 > 
 
 [下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
+
+
+###### 离谱的汉字
+
+![logo](./logo5.png)    
+![展示图](v5.png)
+
+
+> 
+
+[下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 ----
 
 
