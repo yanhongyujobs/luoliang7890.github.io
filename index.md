@@ -24,7 +24,7 @@
 [下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 
 
-###### 摸鱼乐园
+###### 摸鱼绘画乐园
 
 ![logo](./logo3.png)    
 ![展示图](v3.png)
@@ -34,6 +34,16 @@
 
 [下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 
+
+###### 羊了个洋消消乐
+
+![logo](./logo4.png)    
+![展示图](v4.png)
+
+
+> 
+
+[下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 ----
 
 
