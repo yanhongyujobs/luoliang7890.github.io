@@ -26,7 +26,7 @@
 
 ###### 超能画世界
 
-![logo](./logo3.png)    
+![logo](./logo3.jpg)    
 ![展示图](v3.png)
 
 
