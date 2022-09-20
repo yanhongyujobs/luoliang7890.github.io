@@ -71,6 +71,19 @@
 
 
 
+###### 淘淘小说阅读器
+
+![logo](./logo7.png)    
+![展示图](v7.png)
+
+
+> 
+
+[下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
+
+
+
+
 
 
 ----
