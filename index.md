@@ -24,7 +24,7 @@
 [下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 
 
-###### 超能画世界
+###### 超能世界
 
 ![logo](./logo3.jpg)    
 ![展示图](v3.png)
