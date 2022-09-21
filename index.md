@@ -58,7 +58,7 @@
 
 
 
-###### 脸印
+###### FacePlay
 
 ![logo](./logo6.png)    
 ![展示图](v6.png)
