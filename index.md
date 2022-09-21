@@ -73,7 +73,15 @@
 
 ###### 淘淘小说阅读器
 
-![logo](./logo7.png)    
+![logo](./logo7.png)  
+
+你的看书神器！
+这是一款实用的小说阅读工具。
+操作简单，使用方便。
+支持导入书籍，多种翻页方式、可调的字体大小、阅读模式等；
+带给您阅读纸质书籍一般的体验。
+快来看看吧！
+
 ![展示图](v7.png)
 
 
@@ -81,6 +89,17 @@
 
 [下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 
+
+
+###### TT语音变声器
+
+![logo](./logo8.png)    
+![展示图](v8.png)
+
+
+> 
+
+[下载链接](https://pan.baidu.com/s/1FGW3MRJK0wHuv8pgQP0h1Q?pwd=kry6)
 
 
 
